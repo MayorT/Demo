@@ -1,11 +1,11 @@
+I am Tommy
 
+I don't like trouble
 
+I am friendly
 
+And loving at the same time
 
+Cheers
 
-
-
-
-
-
-I hope this ain't much of a problem?
+This is bound to cause trouble
